@@ -5,7 +5,7 @@
 ![TY`5LKWH`UH2F5U%R`TXGOW.jpg](https://s2.loli.net/2022/07/06/Lh4DVjMagJ5bU7W.jpg)
 
 
-先 进 粪 子 （指优先掘皮炎子）
+先 进 粪 子
 
 
 ![TY`5LKWH`UH2F5U%R`TXGOW.jpg](https://s2.loli.net/2022/07/06/INyxGSiC78pUne3.jpg)
